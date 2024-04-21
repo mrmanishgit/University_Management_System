@@ -1,0 +1,6 @@
+![Screenshot (384)](https://github.com/mrmanishgit/University_Management_System/assets/157808382/47505aad-64e2-453e-99d3-b48c4444bee9)
+![Screenshot (388)](https://github.com/mrmanishgit/University_Management_System/assets/157808382/907f0cef-d9a5-4d3e-a940-8e34606b2e1b)
+![Screenshot (390)](https://github.com/mrmanishgit/University_Management_System/assets/157808382/c6b10ac2-564f-47b0-9a80-acb66f1e3160)
+![Screenshot (389)](https://github.com/mrmanishgit/University_Management_System/assets/157808382/31014cf3-883a-40bd-84d4-8d6cdcb4466d)
+![Screenshot (386)](https://github.com/mrmanishgit/University_Management_System/assets/157808382/7b11695a-cbff-4db5-8d7d-7af79c64613d)
+![Screenshot (385)](https://github.com/mrmanishgit/University_Management_System/assets/157808382/99ac1fdc-3a0b-422d-8d02-4446627cddb9)
